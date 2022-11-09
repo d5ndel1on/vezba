@@ -1,1 +1,0 @@
-Pozdrav ja sam Petar
